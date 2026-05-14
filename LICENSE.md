@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base rare Scripts is the best steal the brainrot base Script, featuring invisibility and auto-sell. Safe and powerful for all your
 
 
 
